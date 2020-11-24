@@ -19,7 +19,7 @@
 - 10:54 -- Youming - [Lyrics Generator](https://docs.google.com/presentation/d/1BCJZACJ0AMVcaYnZ8Q1kvob1JVR1hKUB0p-Z905kzRg/edit?usp=sharing)
 - 11:02 -- Ahmad - [project title](url)
 - 11:10 -- Jan - [project title](url)
-- 11:18 -- Fanyi - [project title](url)
+- 11:18 -- Fanyi - [Fake Architects](https://docs.google.com/presentation/d/14sbkSIhFaLn8JF_vbpNy6cZy6o_6VMoiBUIqgcRWC0Q/edit#slide=id.gad484d1543_0_228)
 
 ## Proposal Feedback TLDR:
 
